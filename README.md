@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An Exposition vpon the .23. psalme of Dauid full of frutefull and comfortable doctrin, written to th
+
 #####Body#####
 
 1. ¶To the fayethfull and liuely members of our sauiour Iesus Christ, inhabytinge the city of London, grace and peace from the heauenlye father throughe our lord Iesus Christ.
